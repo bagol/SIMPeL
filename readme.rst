@@ -1,2 +1,2 @@
 #Khususon THE LAST KING Team
-*Silahkan Pelajari
+<br> Silahkan Pelajari
